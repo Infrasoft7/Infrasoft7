@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Infrasoft7
-- 👀 I’m interested in ...learning , catch up running projec developments
+- 👀 I’m interested in ...learning , catch up running project developments
 - 🌱 I’m currently learning ... team management and remote collaboration
 - 💞️ I’m looking to collaborate on ...innovations that change the destiny of many lives
 - 📫 How to reach me ...+9779851060960 is my contact
